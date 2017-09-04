@@ -1,0 +1,2 @@
+# RoleplayingMod
+This mod is for ROLEPLAYERS AND NORMAL MOD PLAYERS ALIKE
